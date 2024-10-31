@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mlucky-nydig
 - 👀 I’m interested in ... Music, Rocks, Reading, Horror Movies!
-- 🌱 I’m currently learning ... Mandarin 
+- 🌱 I’m currently learning ... Spanish 
 - 📫 How to reach me ... 
 
 <!---
